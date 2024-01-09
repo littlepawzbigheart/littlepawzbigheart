@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @littlepawzbigheart
+- 👀 I’m interested in ... MHA
+- 🌱 I’m currently learning ... Coding and writing
+- 💞️ I’m looking to collaborate on ... nothing atm
+- 📫 How to reach me ... you can dm on tumblr my user is the same over there
+- 😄 Pronouns: ... They/it
+- ⚡ Fun fact: ... I'm a therian :D
